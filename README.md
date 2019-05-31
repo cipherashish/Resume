@@ -1,1 +1,1 @@
-https://cipherashish.github.io/Resume/.
+https://cipherashish.github.io/Resume/
